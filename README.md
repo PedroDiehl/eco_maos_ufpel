@@ -1,1 +1,1 @@
-# Higienizador Eco Mãos UFPel
+# Higienizador ECO-MÃOS UFPel
